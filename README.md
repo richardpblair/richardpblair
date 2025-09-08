@@ -1,4 +1,4 @@
-# About ME 👋
+# About Me 👋
 
 I'm just starting my journey down the rabbit hole. "After 8 years in the military and another 16 years in law enforcement, I've seen firsthand the importance of protecting people and assets from all kinds of threats. Now, I'm thrilled to be pivoting to a new kind of defense.
 
